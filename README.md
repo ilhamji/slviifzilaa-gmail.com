@@ -1,0 +1,2 @@
+# slviifzilaa-gmail.com
+Idkomputer
